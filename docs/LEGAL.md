@@ -1,1 +1,0 @@
-﻿Copyright will be here.
